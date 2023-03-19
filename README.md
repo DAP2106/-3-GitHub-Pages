@@ -6,4 +6,4 @@
 4. Посещение кино, музеев, выставок.
 5. Я слишком часто испытываю ощущение де жа вю
 
-! [ссылка на картинку] (images.png)
+! [ссылка на картинку] (https://www.likeni.ru/upload/iblock/bd7/1_nsgWH3QvUBDvZUSqnHAaNg.png)
