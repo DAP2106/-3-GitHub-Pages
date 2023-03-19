@@ -6,4 +6,4 @@
 4. Посещение кино, музеев, выставок.
 5. Я слишком часто испытываю ощущение де жа вю
 
-![Логотип ](istockphoto-654589648-612x612.png) 
+![Логотип ](https://logotip.online/blog/logotipy-brendov-odezhdy/) 
